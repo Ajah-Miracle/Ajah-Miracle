@@ -1,0 +1,6 @@
+- 👋 Hi, I’m Ajah-Chukwuemeka Miracle, an optometrist and data analyst
+- 👀 I’m interested in the analysis of medical data/health records, giving medical for better health decisions
+- 💞️ I’m looking to collaborate on medical data projects, epidemiological research and analysis
+- 📫 How to reach me ajahmiracle22@gmail.com
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: I am a lover of knowledge. Lets grow togrther
